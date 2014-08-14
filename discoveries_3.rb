@@ -1,13 +1,14 @@
 
 
-
-
-
-
 Do things for her, pay your karma...
 For the first in life. Pay your karma. 
 Take things seriously. Things are concrete and real, not virtual. 
 Accept what she wants to give you. Like massages. 
+
+Maybe you are too used to facility ? 
+You are expecting Alicia to take the decisions and say the words. 
+You are not willing to take any risks. 
+
 
 
 Remember what Susana said. 

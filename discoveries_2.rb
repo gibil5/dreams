@@ -24,5 +24,11 @@ No jugar con los temores.
 (while speaking with her)
 
 
+Dos pichones agonizando en la puerta de la casa de mi madre, cuando Ali y yo salíamos al parque, 
+para pasear a Lola. Ali me dijo que los pusiera cerca del tronco del árbol, para que pudieran morir 
+en paz. Ambos estaban todavía tibios pero agonizando. 
+
+
+
 
 
